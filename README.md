@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to navigate this app.
 - 💞️ I’m looking to collaborate on here with any open mind and like minds.
 - 📫 How to reach me bigcakejelato@gmail.com
-- 😄 Pronouns: English, French, Spanish, German.
+- 😄 Pronouns: her royal majesty 
 - ⚡ Fun fact: i love american football and basket ball 
 
 <!---
